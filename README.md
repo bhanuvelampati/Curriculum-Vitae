@@ -8,7 +8,7 @@
 - Very good in leading the team and handling risks
 
 ## Additional Role:
-- Very effectivein communication. From project kick-offs to stakeholder meetings
+- Very effective in communication. From project kick-offs to stakeholder meetings
 - Very good in schedule and time management
 - Having very good leadership skills
 - Critical thinking and problem solving
