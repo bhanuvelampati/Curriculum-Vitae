@@ -7,7 +7,7 @@
 - Created troucble shooot documents to address serviceability issues
 - Very good in leading the team and handling risks
 
-## Addtional Role:
+## Additional Role:
 - Very effectivein communication. From project kick-offs to stakeholder meetings
 - Very good in schedule and time management
 - Having very good leadership skills
